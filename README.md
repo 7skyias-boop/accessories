@@ -1,6 +1,6 @@
 # 7 SKY Accessories
 
-**Lüks Zinət Əşyaları və Premium Kolleksiyalar – Naxçıvandan Dünyaya**
+**Lüks Zinət Əşyaları və Premium Kolleksiyalar – Azərbaycandan Dünyaya**
 
 Bu layihə, 7 SKY Accessories brendinin veb saytını əks etdirir. Sayt müasir dizayn prinsiplərinə əsaslanaraq, zərafət və estetikaya önəm verən istifadəçilər üçün hazırlanmışdır.
 
